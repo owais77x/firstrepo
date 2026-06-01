@@ -1,3 +1,3 @@
 # firstrepo
-this is my first repository. today I start here small insignificant but with time and accumulation of intention just in a couple of month i will
-be huge powerfull unstopable large.
+This is my first repository. today I start here small insignificant but with time and accumulation of intentions just in a couple of month I will
+be huge powerfull unstopable large dangerous.
